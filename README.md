@@ -1,0 +1,1 @@
+# Toshiba-Portege-z30-c
